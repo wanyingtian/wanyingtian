@@ -1,4 +1,4 @@
-** Hi! I am Wanying🙂
+** Hi! I am Wanying🙂 **
 
 ❤️ AI/ML Research and Development, Data Science
 📚 BEng Biomedical Engineering @ University of Victoria
