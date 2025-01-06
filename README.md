@@ -3,6 +3,7 @@
 ❤️ AI/ML/NLP Research and Development, Healthcare
 
 📚 MSc Computer Science @ Simon Fraser University
+
 📚 BEng Biomedical Engineering @ University of Victoria
 
 
